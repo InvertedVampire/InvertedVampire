@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Jacob Reeder, and I am a computer science major at Clemson University.
+- 👋 Hi, I’m Jake Reeder, and I am a computer science major at Clemson University.
 - 👀 I’m interested in starting projects for fun and experience.
 - 🌱 I’m currently learning C++ and OOP concepts.
 - 💞️ I’m looking to collaborate on anything that will broaden my horizons.
