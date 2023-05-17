@@ -3,4 +3,4 @@
 - I’m looking to collaborate on anything that will broaden my horizons.
 📫 How to reach me: 
 -   -Instagram - @jakedreeder
--   -Email     - jacobdreeder@gmail.com OR jdreede@g.clemson.edu
+-   -Email     - jacobdreeder@gmail.com OR jacob.reeder@g.fmarion.edu
