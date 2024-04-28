@@ -2,4 +2,4 @@
 - I’m interested in starting projects for fun and experience.
 - I’m looking to collaborate on anything that will broaden my horizons.
 📫 How to reach me: 
--   -Email     - jacob.reeder@g.fmarion.edu
+-   -Email     - jacobdreeder@gmail.com
